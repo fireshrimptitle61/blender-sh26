@@ -1,4 +1,4 @@
-# 
+# advanced GIMP para PC complementos es el mejor GIMP para PC complementos con edición basada en capas y acciones automatizadas. Seguro, confiable y optimizado para el máximo
 
 
 
